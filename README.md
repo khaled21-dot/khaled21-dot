@@ -7,5 +7,5 @@ I am a Third-Year Software Engineering student of Daffodil International Univers
 ### Current Focus
 - Enhancing my skills on problem solving.
 
-### 📬 Connect with me
+### Connect with me
 - [LinkedIn](https://www.linkedin.com/in/khaled-mahmud7862?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
